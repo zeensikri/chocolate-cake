@@ -1,0 +1,1 @@
+Chocolate Cream, Egg Flour, Butter, Cocoa Solids, Sugar, Baking Powder and Vanilla Extract.
